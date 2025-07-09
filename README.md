@@ -10,4 +10,4 @@
 
 这些优质资源站点为用户提供丰富多样的视频资源，支持多种画质选择，满足不同需求。每个影片均配备详细介绍和演员资料，方便用户了解内容详情。平台播放顺畅，保证无缓冲体验。除了丰富的达AV人的天堂在线观看和日韩AV无码久久精品资源外，还有大量亚洲欧美日韩精品作品，持续更新，满足多样化观众需求。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/met20250709/met4 ）</span>
